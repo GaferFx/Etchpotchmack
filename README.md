@@ -75,7 +75,7 @@ Who knows, maybe one day they will become a part of this era..)
 
 ![](https://img4.teletype.in/files/ff/0e/ff0e9a3d-1cc9-4ae6-84be-3f715b385a61.png)
 
-** That's probably all you need to know for a more comfortable game!**
+**That's probably all you need to know for a more comfortable game!**
 
 **The build is updated very often, it is becoming more optimized and elaborated, so feel free to call your friends and plunge into adventures together!**
 
